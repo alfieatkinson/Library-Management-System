@@ -6,6 +6,8 @@ This project is submitted in partial fulfilment of the Degree of **Master of Sci
 
 ### Grade Achieved: 100%
 
+Endorsement from Dr. Riccardo Polvara: ["one of the very best projects I had to mark"](https://www.linkedin.com/feed/update/urn:li:activity:7292562589098594304?commentUrn=urn%3Ali%3Acomment%3A%28activity%3A7292562589098594304%2C7292583046950625280%29&dashCommentUrn=urn%3Ali%3Afsd_comment%3A%287292583046950625280%2Curn%3Ali%3Aactivity%3A7292562589098594304%29).
+
 </div>
 
 ## Table of Contents
